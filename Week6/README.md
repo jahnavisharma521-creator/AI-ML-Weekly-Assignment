@@ -1,1 +1,1 @@
-Week X Assignment Files
+Week 6 Assignment Files
